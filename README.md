@@ -1,2 +1,2 @@
 # The-infinitely-adjustable-phone-holder
-This phone is infinitely adjustable! Spin it 360 degrees around? Sure! Want every viewing angle you want? Yeah! Want the damn thing upside down? Ofcourse!
+This phone holder is infinitely adjustable! Spin it 360 degrees? Sure! Want any viewing angle you like? Yep! Want it upside down? Of course!
